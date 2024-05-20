@@ -71,7 +71,7 @@
 - If any problem, then create an [`+issue`](https://wa.me/255692725279) Or ask anything here [`+Q&A`](https://yunohclassictz.websites.co.in/)!
 
 
-
+## Shukran Kwenu nyote bila kusahau miamba hii Ally Mabot, Rahman mabot, Kaka Ima  memberz In House🏛 Of Technology
 
 <h2 align="center">  🇹🇿🇹🇿🇹🇿 NOTE 🇹🇿🇹🇿🇹🇿🇹🇿 </h2>
 
