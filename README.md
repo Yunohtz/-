@@ -1,5 +1,5 @@
  <h1 align="center"> 𝐘𝐔𝐍𝐎𝐇 𝐌𝐃 </h1> 
-<p align="center"> Bot yenye Command kibao za aina yake. </p>
+<p align="center"> Bot yenye Command kibao za aina yake Am proud of my self I cloned my Repo Kipitia hii page utajifunza kila kitu kuanzia ku deploy nk 𝐓𝐚𝐧𝐳𝐚𝐧𝐢𝐚𝐧🇹🇿🇹🇿 𝐟𝐢𝐫𝐬𝐭 🇹🇿🇹🇿. </p>
 
 <p align="center">
   <a href="https://youtube.com/@yunoh_of_tech-housetv?si=mhgr-wvsV-3CuahM">
